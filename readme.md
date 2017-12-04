@@ -5,7 +5,7 @@
 <br><br><br><br>
 <h1> Jessa Mae B. Capanas </h2>
 <p> Blk 61 Lot 14 Victoria Reyes, Dasmarinas City, Cavite </p>
-<p> 09067395*** </p>
+<p> 09067395731 </p>
 <p> ijessaofficial@gmail.com </p>
 
 <p> ================================================================================================ </p>
